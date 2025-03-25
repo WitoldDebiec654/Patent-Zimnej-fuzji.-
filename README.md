@@ -19,3 +19,4 @@ Post Mafia jest znana też z Maind trików kontroli umysłu na swoje korzyści i
 Zamieszana jest w to jeszcze mafia rzemieśników. 
 Bezosy naciągają na małe dziecko i karzą się rostać po 20 30 latach życia razem. Praca i gediatria. 
 Bezosy są włacicielemai Amazon i GeoPost w fallout jest VolTech. 
+Post Mafia post złodzieje to sklep Kolonialny Skalige Wojciech Cejrowski. 
