@@ -8,3 +8,4 @@ Po tem śpiewają w Izraelu cała to Post mafia śpiewa piękny Izrael abdocha. 
 Oni to ten Scam. I jeszcze szkolenia oferują. Czy wymianę oszczędności życia na nieruchomości czy własny biznes sklep po 4 zł to czy żonę to też post mafia i wirus.
 Bezosy to ten złodziej oszczędności. 
 Ci hakerzy dają też czekoladki i piękne i brzydkie zagarki i zegary za startę oszczędności życia. 
+Post mafia straszy że spuści bombę termojądrową z antymaterią na miasto rodzine oszczędzających to jest też post mafia że idzie wojna to Post Mafia sportu. Te bajki to też post mafia iluminati. Anonnymus to też Post Mafia. Post mafia spuszcza bomby atomowe na miasta i wsie gdzie się oszczędza. Bezosy im karzą. Gieruś i Chif też bezosy oni rządzą Post Mafią i legią i spartą. 
