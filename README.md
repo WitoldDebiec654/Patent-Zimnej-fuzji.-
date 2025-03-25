@@ -16,3 +16,4 @@ Te hachmenty to słyni aktorzy i iluminaci i masoneria z telefonu 112 997 117 z 
 Bezosy wymyśliły PRL to machinę zła i lewicę. Wszyscy z lewicy to Policja tych żebaraków i sędziów z ulicy jak Wesołowska i Judi i Kubuś sąd rodziny to Bezosy. 
 Bezosy są ze sklepu może coś ze sklepu za oszczeności życia. 
 Post Mafia jest znana też z Maind trików kontroli umysłu na swoje korzyści i strony post mafi. 
+Zamieszana jest w to jeszcze mafia rzemieśników. 
