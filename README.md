@@ -15,3 +15,4 @@ Kalendarz koło świąnt i Okazji na zlecnie watykanu stworzyli Bezosy ten kalen
 Te hachmenty to słyni aktorzy i iluminaci i masoneria z telefonu 112 997 117 z post mafi post złodzieje. To same Bezosy pod różnymi płaszczami nazwisk brużuje to Bezosy ta mafia post mafia to komuniści i to legandarne wojskow kierowców pod ścianę zamykamy sklep bo jesteś bogaty i nie chcesz małych post zakupów pod ścianę. 
 Bezosy wymyśliły PRL to machinę zła i lewicę. Wszyscy z lewicy to Policja tych żebaraków i sędziów z ulicy jak Wesołowska i Judi i Kubuś sąd rodziny to Bezosy. 
 Bezosy są ze sklepu może coś ze sklepu za oszczeności życia. 
+Post Mafia jest znana też z Maind trików kontroli umysłu na swoje korzyści i strony post mafi. 
