@@ -9,3 +9,4 @@ Oni to ten Scam. I jeszcze szkolenia oferują. Czy wymianę oszczędności życi
 Bezosy to ten złodziej oszczędności. 
 Ci hakerzy dają też czekoladki i piękne i brzydkie zagarki i zegary za startę oszczędności życia. 
 Post mafia straszy że spuści bombę termojądrową z antymaterią na miasto rodzine oszczędzających to jest też post mafia że idzie wojna to Post Mafia sportu. Te bajki to też post mafia iluminati. Anonnymus to też Post Mafia. Post mafia spuszcza bomby atomowe na miasta i wsie gdzie się oszczędza. Bezosy im karzą. Gieruś i Chif też bezosy oni rządzą Post Mafią i legią i spartą. 
+Peper Pots to też Post Mafia. Katarina Wawer też Post Mafia. Wymiana Oszczędnośći życia na jedzenie to też Post Mafia 112 117 Chif i Gieruś. 
