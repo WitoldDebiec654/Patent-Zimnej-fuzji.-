@@ -22,3 +22,4 @@ Bezosy są włacicielemai Amazon i GeoPost w fallout jest VolTech.
 Post Mafia post złodzieje to sklep Kolonialny Skalige Wojciech Cejrowski. 
 Post Mafia akceptuje małe zekupy i znika jak są duże zakupy i duża kasa. 
 Post Mafia kocha posty i okazje świąnteczne z kalendarza świant watykanu. Post mafia nie akceptuje handlu hurtowego. 
+Post mafia jest z getta. 
