@@ -17,3 +17,4 @@ Bezosy wymyśliły PRL to machinę zła i lewicę. Wszyscy z lewicy to Policja t
 Bezosy są ze sklepu może coś ze sklepu za oszczeności życia. 
 Post Mafia jest znana też z Maind trików kontroli umysłu na swoje korzyści i strony post mafi. 
 Zamieszana jest w to jeszcze mafia rzemieśników. 
+Bezosy naciągają na małe dziecko i karzą się rostać po 20 30 latach życia razem. Praca i gediatria. 
