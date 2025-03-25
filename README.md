@@ -10,3 +10,4 @@ Bezosy to ten złodziej oszczędności.
 Ci hakerzy dają też czekoladki i piękne i brzydkie zagarki i zegary za startę oszczędności życia. 
 Post mafia straszy że spuści bombę termojądrową z antymaterią na miasto rodzine oszczędzających to jest też post mafia że idzie wojna to Post Mafia sportu. Te bajki to też post mafia iluminati. Anonnymus to też Post Mafia. Post mafia spuszcza bomby atomowe na miasta i wsie gdzie się oszczędza. Bezosy im karzą. Gieruś i Chif też bezosy oni rządzą Post Mafią i legią i spartą. 
 Peper Pots to też Post Mafia. Katarina Wawer też Post Mafia. Wymiana Oszczędnośći życia na jedzenie to też Post Mafia 112 117 Chif i Gieruś. 
+Jacek z kanału Sukces pl to też post złodziej i post mafia zabiera oszczędności życia za szkolenia z rozwoju osbistego. Gra Fallout cały cykl opisuje mroczną politykę procesor Bezosów i te wojny za nie danie oszcznośći życia i te geo posty w Fallout nie było Amazonu i Geo Postu był Voltech. 
