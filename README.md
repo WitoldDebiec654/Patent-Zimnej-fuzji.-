@@ -63,3 +63,4 @@ Te słowa jak chce się piniedzy i wyjazdów za granice zamknij mordę to Bezosy
 Bezosów chronią 2 Prezydenci. Natan Yahu i Macroun oni karzą dabać o surowce z kopalni i Pola. Oni to maszyny. To jest ten Przerent. Oni mówią jak maszyny Mnie nie znasz mnie nie rozumiesz. To są ich frazesy. Bezosy to maszyny. 
 Oni i Cerffur to Lewy profil. 
 Przez Procesro Latudę od Kliego mordercy i żyda żebraka i Bezosów nikt na świecie nie będzie mieć pieniedzy na Koncie oszczędnościowym. Izrael i Bezosy chcą rozdawać zbawki sportów ekstremalnych jak Zbroja Iron men to są oszczedacze. 
+Z Pieniedzmy w Europie jest jak na Połódniu świata. Niestey przez Bezosów będzie Program Post Odyn jak radzić sobie z biedą. 
