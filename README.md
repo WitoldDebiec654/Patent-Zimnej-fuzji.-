@@ -32,3 +32,4 @@ Cenny zakupów w post mafi są wysokie. To ceny takie jak za zakupy w Samsung lu
 Obecne ceny nieruchomości to też post mafia. 
 Post Mafia to zakaza prawa jazdy i auta. To są jakieś gadżety do latania zbroja starka, Spadochron, Silniki odrzutowe do kostki, Paralotnia, Dron do latania. Jakieś inne chakerskie zabawki transportu osbistego personalnego. 
 Post Mafia stawia na sporty ekstemalne. 
+Post Mafia stworzyła Kaczora Donalda. 
