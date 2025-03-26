@@ -38,3 +38,4 @@ Z produkcji złota i handlu złotem na złom też można żyć lub do skupu firm
 Wszystkie lewe pomysły to kradzież. Co do drukowania złota radiem i procesorem z przeciw anty materi jak z LHC to pomysł nowy i nie oklepany nie zniszczony nie zepsuty. Skupy chętnie kupią sztabki złota do fabryk za gotówkę. 
 Złoto z drukarki kwantowej zawsze można sprzedać do banku na lokatę czy konto oszczednościowe lub konto inwestycyjne z funduszami inwestycyjnymi. 10 KG zł i jesteśmy bogaci. 
 Złoto można sprzedać do branży elektronicznej lub komputerowej czy elektrycznej na silniki elektryczne. 
+To jest biznes z maszyn na radio drukarkę kwantową maszyn samoreplikujących się maszyn. 10 KG złota i drukowanie 10 drukarek kwantowych ze złotem 10 KG na zapas bo palą się jak żarówki po 100 razach to jest opłacalne. 
