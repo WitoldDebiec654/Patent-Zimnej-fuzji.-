@@ -48,3 +48,4 @@ Jak ktoś ci mówi po takim pomyśle jak Bezos miej serce to mówi za niego ten 
 W tych radio drukarkach kwantowych można użyć mikcro zimnej fuzji termojądrowej do 100C stopni 1000 Bar. 
 Watykan to post złodzieje z post mafi jak epidemie raka i innych chorób Harrp 112 117 Chif legia sparta i wojsko pod ścianę atom na ziemie pod miasto tych pomysłow od Izraela. 
 Posty i Post mafia i małe post zakupy to przerekrenty minimalistów z Watykanu. 
+Bezosy i Legia sparta Chif i Green Pece i Wojsko pod ścianę mają nie równo pod sufitem za tem Mninimalizm z Watykanem i Teksty miej serce dla czasu czekania czy inne tego typu frazesy. 
