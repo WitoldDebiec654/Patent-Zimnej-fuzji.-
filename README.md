@@ -24,3 +24,4 @@ Post Mafia akceptuje małe zekupy i znika jak są duże zakupy i duża kasa.
 Post Mafia kocha posty i okazje świąnteczne z kalendarza świant watykanu. Post mafia nie akceptuje handlu hurtowego. 
 Post mafia jest z getta. 
 Jak Post Mafia mówi Chwała na wysokości życzy śmierci i sznura. 
+Nie chodzi o jedzenie tylko o produkcję seryjną rzeczy. 
