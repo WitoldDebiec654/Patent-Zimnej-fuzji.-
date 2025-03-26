@@ -57,3 +57,4 @@ Oni ta Policja to ząbi z frazesem miej serce no miej I'm Hipis.
 Towarzystow Mon do systemu też procesor minimalistów Latuda hipster Jezus. 
 Bezosy to afery z Watykanu. 
 Dla mnie słowo miłość i serce bez pieniedzy jest przereklamowane jak słowa 112 i 117 przestań z tej Policji tych Bezosów dziadów. 
+Dodruku zakazali minimaliści i afer świątecznych. 
