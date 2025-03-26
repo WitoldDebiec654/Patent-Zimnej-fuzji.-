@@ -67,3 +67,4 @@ Z Pieniedzmy w Europie jest jak na Połódniu świata. Niestey przez Bezosów b�
 Co do Biedy to 1937 roku sklepy zamkneli ci ze szpitala i nasłali Wojsko. To były Bezosy. Co do urządzenia da się drukować durzo pieniedzy i złota z radio drukarki Kwantowej. Ale przez Bezosów jest to zakazane to Mnimalistom z Watykanu się nie podoba. 
 Ci wiecznie biedni Bezdomni to Bezosy. Bezosy niech płaczą że mówię prawdę. 
 Bezosy robią fochy jak chce się dużo pieniedzy. 
+Te afery to Kolejny Kaczor Donald jak z spuszczeniem peatrd Atomowych na Hiroszymę. 
