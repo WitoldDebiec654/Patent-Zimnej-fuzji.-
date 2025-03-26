@@ -71,3 +71,4 @@ Te afery to Kolejny Kaczor Donald jak z spuszczeniem peatrd Atomowych na Hiroszy
 Dodruk pieniedzy i surowców Radio Drukarkami kawantowymi jest prawy i Legalny. Procrsory liczą atomy i je drukują rzeczy drukują na radio. 
 Ta Bieda od czasów Babilonu przez tych fakirów to Bezosy przez Mosad z Izraela. 
 Bezosy rządzą światem. 
+Żydzi te nostradamusy kochają biedę oni zkazali kasy. To fakirzy. 
