@@ -25,3 +25,4 @@ Post Mafia kocha posty i okazje świąnteczne z kalendarza świant watykanu. Pos
 Post mafia jest z getta. 
 Jak Post Mafia mówi Chwała na wysokości życzy śmierci i sznura. 
 Nie chodzi o jedzenie tylko o produkcję seryjną rzeczy. 
+Do masowej produkcji rzeczy jest potrzeba energia elektryczna wolna. 
