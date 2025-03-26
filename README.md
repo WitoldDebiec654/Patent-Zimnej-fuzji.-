@@ -39,3 +39,4 @@ Wszystkie lewe pomysły to kradzież. Co do drukowania złota radiem i procesore
 Złoto z drukarki kwantowej zawsze można sprzedać do banku na lokatę czy konto oszczednościowe lub konto inwestycyjne z funduszami inwestycyjnymi. 10 KG zł i jesteśmy bogaci. 
 Złoto można sprzedać do branży elektronicznej lub komputerowej czy elektrycznej na silniki elektryczne. 
 To jest biznes z maszyn na radio drukarkę kwantową maszyn samoreplikujących się maszyn. 10 KG złota i drukowanie 10 drukarek kwantowych ze złotem 10 KG na zapas bo palą się jak żarówki po 100 razach to jest opłacalne. 
+Bezosy indianie nie pozwalają się bogacić i drukować złota i pieniedzy na czele tego zakazu jest FBI oni zakazali dodruku surowców innymi metodami niż górnictwo i szukanie złóż w kosmosie. To Bezosów trzeba zwolnić z pracy. 
