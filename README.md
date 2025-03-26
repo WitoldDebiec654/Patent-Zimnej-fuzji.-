@@ -64,3 +64,4 @@ Bezosów chronią 2 Prezydenci. Natan Yahu i Macroun oni karzą dabać o surowce
 Oni i Cerffur to Lewy profil. 
 Przez Procesro Latudę od Kliego mordercy i żyda żebraka i Bezosów nikt na świecie nie będzie mieć pieniedzy na Koncie oszczędnościowym. Izrael i Bezosy chcą rozdawać zbawki sportów ekstremalnych jak Zbroja Iron men to są oszczedacze. 
 Z Pieniedzmy w Europie jest jak na Połódniu świata. Niestey przez Bezosów będzie Program Post Odyn jak radzić sobie z biedą. 
+Co do Biedy to 1937 roku sklepy zamkneli ci ze szpitala i nasłali Wojsko. To były Bezosy. Co do urządzenia da się drukować durzo pieniedzy i złota z radio drukarki Kwantowej. Ale przez Bezosów jest to zakazane to Mnimalistom z Watykanu się nie podoba. 
