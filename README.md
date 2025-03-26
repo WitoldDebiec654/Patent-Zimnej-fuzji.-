@@ -29,3 +29,4 @@ Do masowej produkcji rzeczy jest potrzeba energia elektryczna wolna.
 Zakupy Post Mafi są jak u Jubilera. 
 Post zakupy post mafi to hakerzy. 
 Cenny zakupów w post mafi są wysokie. To ceny takie jak za zakupy w Samsung lub w Biurach matrymonialnych za nieruchomości. 
+Obecne ceny nieruchomości to też post mafia. 
