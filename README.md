@@ -43,4 +43,4 @@ Bezosy indianie nie pozwalają się bogacić i drukować złota i pieniedzy na c
 Bezosy kontrolują ludzkie mózgi w środku czaszki procesorami na radio Procesorem Latudą bieda i minimalizm pies. Trzbea ten procesor populacji wyjąć. Latuda to narkotyki na biedę. Pieskie życie. 
 50 centa i tą Policje patryków trzeba zwolnić z pracy za te Blokady doruku gotówki i surowców i te czasowe kolejki za majątkami bo pieskom się nie podoba. 
 Na ziemi jest za dużo moralistów i minialaistów i etyków po procesorze Latuda z Watykanu. Za dużo się na wszystko czeka jak w PRL. 
-To wszystko przez przekerent z mocnym lewym procesorem Latudom w icha głowach 112 117. 
+To wszystko przez przekerent z mocnym lewym procesorem Latudom w icha głowach 112 117 Chif z legi i sparty. 
