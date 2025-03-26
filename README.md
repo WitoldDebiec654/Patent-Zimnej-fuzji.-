@@ -46,3 +46,4 @@ Na ziemi jest za dużo moralistów i minialaistów i etyków po procesorze Latud
 To wszystko przez przekerent z mocnym lewym procesorem Latudom w icha głowach 112 117 Chif z legi i sparty. 
 Jak ktoś ci mówi po takim pomyśle jak Bezos miej serce to mówi za niego ten Lewy mocny Procesor Latuda w ich czaszkach. 
 W tych radio drukarkach kwantowych można użyć mikcro zimnej fuzji termojądrowej do 100C stopni 1000 Bar. 
+Watykan to post złodzieje z post mafi jak epidemie raka i innych chorób Harrp 112 117 Chif legia sparta i wojsko pod ścianę atom na ziemie pod miasto tych pomysłow od Izraela. 
