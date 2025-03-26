@@ -34,3 +34,4 @@ Post Mafia to zakaza prawa jazdy i auta. To są jakieś gadżety do latania zbro
 Post Mafia stawia na sporty ekstemalne. 
 Post Mafia stworzyła Kaczora Donalda. 
 Dzięki tym patentom co sprzedałem i dałem każdy będzie mugł wydrukować złoto i sprzedać i mieć jakiś majątek np.: Sprzedać złoto na sprzęnt medyczyny i kable i Nano Adamed. 
+Z produkcji złota i handlu złotem na złom też można żyć lub do skupu firm gdzie skupują złoto. 
