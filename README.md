@@ -36,3 +36,4 @@ Post Mafia stworzyła Kaczora Donalda.
 Dzięki tym patentom co sprzedałem i dałem każdy będzie mugł wydrukować złoto i sprzedać i mieć jakiś majątek np.: Sprzedać złoto na sprzęnt medyczyny i kable i Nano Adamed. 
 Z produkcji złota i handlu złotem na złom też można żyć lub do skupu firm gdzie skupują złoto. 
 Wszystkie lewe pomysły to kradzież. Co do drukowania złota radiem i procesorem z przeciw anty materi jak z LHC to pomysł nowy i nie oklepany nie zniszczony nie zepsuty. Skupy chętnie kupią sztabki złota do fabryk za gotówkę. 
+Złoto z drukarki kwantowej zawsze można sprzedać do banku na lokatę czy konto oszczednościowe lub konto inwestycyjne z funduszami inwestycyjnymi. 10 KG zł i jesteśmy bogaci. 
