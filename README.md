@@ -59,3 +59,4 @@ Bezosy to afery z Watykanu.
 Dla mnie słowo miłość i serce bez pieniedzy jest przereklamowane jak słowa 112 i 117 przestań z tej Policji tych Bezosów dziadów. 
 Dodruku zakazali minimaliści i afer świątecznych. 
 To Minimaliści z Watykanu są Niepełnosprawni umysłowo. 
+Te słowa jak chce się piniedzy i wyjazdów za granice zamknij mordę to Bezosy i Dredy i ci żołnierze pod ścianę od petard atomowych. Oni trzymają wszystkich w więzeniu w domu w Metropoli. 
