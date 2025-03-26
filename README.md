@@ -55,3 +55,4 @@ Te Absurdy to Watykan i Bezosy.
 Tych z ABW i Pogotowia FBI trzeba zwolnić na bruk za te kryzysy i afery i minimalizm i biedę za ten krach na giełdzie. 
 Oni ta Policja to ząbi z frazesem miej serce no miej I'm Hipis.
 Towarzystow Mon do systemu też procesor minimalistów Latuda hipster Jezus. 
+Bezosy to afery z Watykanu. 
