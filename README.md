@@ -50,3 +50,4 @@ Watykan to post złodzieje z post mafi jak epidemie raka i innych chorób Harrp 
 Posty i Post mafia i małe post zakupy to przerekrenty minimalistów z Watykanu. 
 Bezosy i Legia sparta Chif i Green Pece i Wojsko pod ścianę mają nie równo pod sufitem za tem Mninimalizm z Watykanem i Teksty miej serce dla czasu czekania czy inne tego typu frazesy 112 i 117 Chif legia sprta Watykan. 
 Watyakńskie Pogotowie 112 i 117 ma pięczątki militarnych. Są lewi prawi i nie legalni lewica ich zatwierdziała z Branem i Zambergiem. 
+Latuda w ich głowach prowadzi ich umysły jak mużyn drogom czasu niewoli i pokory.  
