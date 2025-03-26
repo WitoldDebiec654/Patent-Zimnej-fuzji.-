@@ -53,3 +53,4 @@ Watyakńskie Pogotowie 112 i 117 ma pięczątki militarnych. Są lewi prawi i ni
 Latuda w ich głowach prowadzi ich umysły jak mużyn drogom czasu niewoli i pokory.  
 Te Absurdy to Watykan i Bezosy.  
 Tych z ABW i Pogotowia FBI trzeba zwolnić na bruk za te kryzysy i afery i minimalizm i biedę za ten krach na giełdzie. 
+Oni ta Policja to ząbi z frazesem miej serce no miej I'm Hipis.
