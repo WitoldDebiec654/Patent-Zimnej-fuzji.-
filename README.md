@@ -68,3 +68,4 @@ Co do Biedy to 1937 roku sklepy zamkneli ci ze szpitala i nasłali Wojsko. To by
 Ci wiecznie biedni Bezdomni to Bezosy. Bezosy niech płaczą że mówię prawdę. 
 Bezosy robią fochy jak chce się dużo pieniedzy. 
 Te afery to Kolejny Kaczor Donald jak z spuszczeniem peatrd Atomowych na Hiroszymę. 
+Dodruk pieniedzy i surowców Radio Drukarkami kawantowymi jest prawy i Legalny. Procrsory liczą atomy i je drukują rzeczy drukują na radio. 
