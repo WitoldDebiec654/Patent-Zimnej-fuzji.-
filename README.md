@@ -76,3 +76,4 @@ Te zakazy to Bezosy i afery świonteczne. Chcą być charywatywni altruiści nac
 Jak ktoś słyszał Kali Linux Płącz Bezosy płaczą zegary niech to zignoruje to są żule od żulenia surowców na zegary i konfiskatę majątków. Zegarki są z kobietami. Taki przerekrent Kali Linux. 
 Kopanie głębiej za złotem jest skarzenie radioaktywne. 
 Co do obligacji i akcji to nasyłają Keliego Linuxa i się wełamuje po akcje i obligacje i wysyła na adres kupującego akcje i obligacje zegarek z żoną taki przerekrent w przyszłości od Bezosów. 
+Z zimenej fuzji i drukarki kwantowej można wyprodukować dużo złomu i sztabek złota na handel na złom. 
