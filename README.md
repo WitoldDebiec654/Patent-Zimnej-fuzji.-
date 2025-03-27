@@ -74,3 +74,4 @@ Bezosy rządzą światem.
 Żydzi te nostradamusy kochają biedę oni zkazali kasy. To fakirzy. 
 Te zakazy to Bezosy i afery świonteczne. Chcą być charywatywni altruiści naciągani podlizusy. 
 Jak ktoś słyszał Kali Linux Płącz Bezosy płaczą zegary niech to zignoruje to są żule od żulenia surowców na zegary i konfiskatę majątków. Zegarki są z kobietami. Taki przerekrent Kali Linux. 
+Kopanie głębiej za złotem jest skarzenie radioaktywne. 
