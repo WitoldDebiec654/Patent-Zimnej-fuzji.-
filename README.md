@@ -77,3 +77,4 @@ Jak ktoś słyszał Kali Linux Płącz Bezosy płaczą zegary niech to zignoruje
 Kopanie głębiej za złotem jest skarzenie radioaktywne. 
 Co do obligacji i akcji to nasyłają Keliego Linuxa i się wełamuje po akcje i obligacje i wysyła na adres kupującego akcje i obligacje zegarek z żoną taki przerekrent w przyszłości od Bezosów. 
 Z zimenej fuzji i drukarki kwantowej można wyprodukować dużo złomu i sztabek złota na handel na złom. 
+Ci ludzie co się awanturują 112 i 117 to bezdomni. 
