@@ -72,3 +72,4 @@ Dodruk pieniedzy i surowców Radio Drukarkami kawantowymi jest prawy i Legalny. 
 Ta Bieda od czasów Babilonu przez tych fakirów to Bezosy przez Mosad z Izraela. 
 Bezosy rządzą światem. 
 Żydzi te nostradamusy kochają biedę oni zkazali kasy. To fakirzy. 
+Te zakazy to Bezosy i afery świonteczne. Chcą być charywatywni altruiści naciągani podlizusy. 
