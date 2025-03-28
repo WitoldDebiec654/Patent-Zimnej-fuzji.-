@@ -86,3 +86,4 @@ Piniądze i złotto można podrabiać Transaltorem z napisaną apliakcją do pod
 Trepy z Post Mafi to post złodzieje od alimentów i nie chcianej żony. 
 Te niskie zarobki na świecie w każdym zwodzie na umowie i na ulotce o prace wysokie zarobki zawsze na umowie piszą na rękę 300 zł lub 2500 zł na rękę. To trepy z post mafi dają takie zarobki i je regulują. To są te pod ściane z 1939 roku przez nich nie można być Hrabiom. To janosiki ludzie Honoru. Kłócą się o tanie wina i świenta przyw igiljnym stole i crack. Nie kasę. 
 To post mafia wypycha politykom i sobie kieszenie. 
+Translator na zimnon fuzje podrabia gotówkę i złoto na orginalne jak bank. Trepy to maszyny i golemy i wampiry łase na wysiłek fizyczny leniwych osób. Oni nie są oświeceni. 
