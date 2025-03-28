@@ -79,3 +79,4 @@ Co do obligacji i akcji to nasyłają Keliego Linuxa i się wełamuje po akcje i
 Z zimenej fuzji i drukarki kwantowej można wyprodukować dużo złomu i sztabek złota na handel na złom. 
 Ci ludzie co się awanturują np.: o małe post zakupy z 112 i 117 to bezdomni.
 Te duże zarobki to fotomontaż firmi i ich CV. Realne zarobki na rękę to 300 zł lub 2500 zł na rękę kontrolowane przez Post Mafie. Post Mafia jest w urzędach. 
+Stark też jest z Post Mafi ukradł reaktor łukowy komuś z książki. Ci aktorzy to sławni oszuści z NYC. 
