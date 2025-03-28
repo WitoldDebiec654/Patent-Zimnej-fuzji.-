@@ -83,3 +83,4 @@ Stark też jest z Post Mafi ukradł reaktor łukowy komuś z książki. Ci aktor
 Wśród Patentów wolnej energi krążą opowieści o oszustach z Post Mafi i małych post zakupów. 
 Co do funduszy inwestycjnych to dają za nie jak w Lotto kobiety z aliementami bezdomne a pieniądze idą na NGO. Tylko Konta oszczędnościowe, Lokaty i lekie fundusze inwestycyjne bez ryzyka utraty pieniedzy z inwestycji.
 Piniądze i złotto można podrabiać Transaltorem z napisaną apliakcją do podrobania pieniedzy i złota na radio są jeszcze renty ale trudno udawać chorego psychicznie np. Co do Post Mafi to ci od Alimentów i ciąży i robienie komuś długów z komisariatu Policji od Gierka i Stalina ciążą i alimentami i niechcianą żoną to są trepy z wojska przez nich nie można żyć jak Chrabia. Z pieniedzmi i byciem bogatym trzeba się ukrywać. 
+Trepy z Post Mafi to post złodzieje od alimentów i nie chcianej żony. 
