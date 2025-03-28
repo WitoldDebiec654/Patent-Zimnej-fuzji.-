@@ -78,3 +78,4 @@ Kopanie głębiej za złotem jest skarzenie radioaktywne.
 Co do obligacji i akcji to nasyłają Keliego Linuxa i się wełamuje po akcje i obligacje i wysyła na adres kupującego akcje i obligacje zegarek z żoną taki przerekrent w przyszłości od Bezosów. 
 Z zimenej fuzji i drukarki kwantowej można wyprodukować dużo złomu i sztabek złota na handel na złom. 
 Ci ludzie co się awanturują np.: o małe post zakupy z 112 i 117 to bezdomni.
+Te duże zarobki to fotomontaż firmi i ich CV. Realne zarobki na rękę to 300 zł lub 2500 zł na rękę kontrolowane przez Post Mafie. Post Mafia jest w urzędach. 
