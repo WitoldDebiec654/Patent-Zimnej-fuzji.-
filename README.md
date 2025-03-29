@@ -91,3 +91,4 @@ To Contliwy Jekob Maul karze pracować uczciwie w pracy nie pieniedzmi i inwesty
 Te żarty i przekrenty to organiazują sklepy dają za miast pieniedzy alimnty i żony i jakieś gadżety ze sportów ekstremalnych. Bezos tym rządzi. 
 Za rządów Post Mafi PRL miało się płaski wysportowany brzuch i zero jedzenia i piniedzy czy luksusu to jest Post Mafia i małe post zakupy tylko były. Post mafia cała była seksi i wysportowana. 
 Nie mówię że ktoś chce być gróby czy był gruby. Za post mafi nic nie było w sklepie. 
+Ci z TV to Post mafia. Oni na pczątku życia nie mieli na chle teraz mają pieniądze z kradzieży innym kasy z oszczędności dają zegarki i kobiety samotnikom. Jhon Konor to też post mafia. 
