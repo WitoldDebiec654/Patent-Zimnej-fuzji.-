@@ -89,3 +89,4 @@ To post mafia wypycha politykom i sobie kieszenie.
 Translator na zimnon fuzje podrabia gotówkę i złoto na orginalne jak bank. Trepy to maszyny i golemy i wampiry łase na wysiłek fizyczny leniwych osób. Oni nie są oświeceni. 
 To Contliwy Jekob Maul karze pracować uczciwie w pracy nie pieniedzmi i inwestycjami. To trepy z post mafi karzą rano wstawać do pracy i uprawiać sport dla szpanu i punktów lansu. 
 Te żarty i przekrenty to organiazują sklepy dają za miast pieniedzy alimnty i żony i jakieś gadżety ze sportów ekstremalnych. Bezos tym rządzi. 
+Za rządów Post Mafi PRL miało się płaski wysportowany brzuch i zero jedzenia i piniedzy czy luksusu to jest Post Mafia i małe post zakupy tylko były. Post mafia cała była seksi i wysportowana. 
