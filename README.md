@@ -90,3 +90,4 @@ Translator na zimnon fuzje podrabia gotówkę i złoto na orginalne jak bank. Tr
 To Contliwy Jekob Maul karze pracować uczciwie w pracy nie pieniedzmi i inwestycjami. To trepy z post mafi karzą rano wstawać do pracy i uprawiać sport dla szpanu i punktów lansu. 
 Te żarty i przekrenty to organiazują sklepy dają za miast pieniedzy alimnty i żony i jakieś gadżety ze sportów ekstremalnych. Bezos tym rządzi. 
 Za rządów Post Mafi PRL miało się płaski wysportowany brzuch i zero jedzenia i piniedzy czy luksusu to jest Post Mafia i małe post zakupy tylko były. Post mafia cała była seksi i wysportowana. 
+Nie mówię że ktoś chce być gróby czy był gruby. Za post mafi nic nie było w sklepie. 
