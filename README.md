@@ -88,4 +88,4 @@ Te niskie zarobki na świecie w każdym zwodzie na umowie i na ulotce o prace wy
 To post mafia wypycha politykom i sobie kieszenie. 
 Translator na zimnon fuzje podrabia gotówkę i złoto na orginalne jak bank. Trepy to maszyny i golemy i wampiry łase na wysiłek fizyczny leniwych osób. Oni nie są oświeceni. 
 To Contliwy Jekob Maul karze pracować uczciwie w pracy nie pieniedzmi i inwestycjami. To trepy z post mafi karzą rano wstawać do pracy i uprawiać sport dla szpanu i punktów lansu. 
-Te żarty i przekrenty to organiazują sklepy dają za miast pieniedzy alimnty i żony i jakieś gadżety ze sportów ekstremalnych. 
+Te żarty i przekrenty to organiazują sklepy dają za miast pieniedzy alimnty i żony i jakieś gadżety ze sportów ekstremalnych. Bezos tym rządzi. 
